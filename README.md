@@ -1,1 +1,1 @@
-# RamonRey21.github.io
+Ramón Rey Espinoza Quintero, Jorge Alberto Salas Ramos 
